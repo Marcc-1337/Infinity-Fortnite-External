@@ -9,3 +9,18 @@ Status : Detected on EAC & BE
 
 Star this Repo and follow me for more leaks.
 Discord : reazy0
+
+
+Tags ignore : 
+Fortnite
+External
+Source
+Undetected
+Detected
+Aim
+UD 
+Dtc
+Apex Legends
+Valorant
+Driver
+Comms
